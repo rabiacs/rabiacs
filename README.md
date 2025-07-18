@@ -1,4 +1,4 @@
-### Hi there, I'm Rabia 👋
+### Hi there, I'm Rabiya 👋
 
 🎓 MSc Computer Science Student  
 💻 Aspiring Software Engineer  
